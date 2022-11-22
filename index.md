@@ -66,3 +66,7 @@
 # Käsienpesurap
 
 [![Watch the video](https://img.youtube.com/vi/IO3n8YYTIgQ/default.jpg)](https://www.youtube.com/watch?v=IO3n8YYTIgQ)
+
+# Tikkurila 150 v.
+
+[![Watch the video](https://img.youtube.com/vi/aXLqXpoaMbg/default.jpg)](https://youtu.be/aXLqXpoaMbg)
