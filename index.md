@@ -70,3 +70,11 @@
 # Tikkurila 150 v.
 
 [![Watch the video](https://img.youtube.com/vi/aXLqXpoaMbg/default.jpg)](https://youtu.be/aXLqXpoaMbg)
+
+# TVO Energiansäästötanssi
+
+[![Watch the video](https://img.youtube.com/vi/a-vbidBUP9w/default.jpg)](https://www.youtube.com/watch?v=a-vbidBUP9w)
+
+# Tää on tiedettä (Oulun yliopisto)
+
+[![Watch the video](https://img.youtube.com/vi/lMbR0o_96cc/default.jpg)](https://www.youtube.com/watch?v=lMbR0o_96cc)
