@@ -5,6 +5,14 @@
 
 [![Watch the video](https://img.youtube.com/vi/IFeKV_bmb9M/default.jpg)](https://www.youtube.com/watch?v=IFeKV_bmb9M)
 
+## Club banger remix
+
+[![Watch the video](https://img.youtube.com/vi/PXXXyZy8ojw/default.jpg)](https://www.youtube.com/watch?v=PXXXyZy8ojw)
+
+## Skeletor Fan Club remix
+
+[![Watch the video](https://img.youtube.com/vi/g8ZFLCG05o4/default.jpg)](https://www.youtube.com/watch?v=g8ZFLCG05o4)
+
 # Apotti-reggae
 
 ## Apotti-reggae
