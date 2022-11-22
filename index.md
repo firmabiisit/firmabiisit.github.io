@@ -46,3 +46,11 @@
 # Markiisin alla aina on kesä
 
 [![Watch the video](https://img.youtube.com/vi/DUbhPyUXI1I/default.jpg)](https://www.youtube.com/watch?v=DUbhPyUXI1I)
+
+# Healthineers Song
+
+[![Watch the video](https://img.youtube.com/vi/K5LiUrezV6k/default.jpg)](https://www.youtube.com/watch?v=K5LiUrezV6k)
+
+# CGI
+
+[![Watch the video](https://img.youtube.com/vi/uFFIJ9W1St4/default.jpg)](https://www.youtube.com/watch?v=uFFIJ9W1St4)
