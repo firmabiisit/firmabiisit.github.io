@@ -26,3 +26,23 @@
 # Ylin tilittäjä
 
 [![Watch the video](https://img.youtube.com/vi/hTlawVMnQ44/default.jpg)](https://www.youtube.com/watch?v=hTlawVMnQ44)
+
+# Sanoma Muppets
+
+[![Watch the video](https://img.youtube.com/vi/-jKNrwBaCLs/default.jpg)](https://www.youtube.com/watch?v=-jKNrwBaCLs)
+
+# Konduktööri rap
+
+[![Watch the video](https://img.youtube.com/vi/xvsIt62K4S4/default.jpg)](https://www.youtube.com/watch?v=xvsIt62K4S4)
+
+# Ollaan ykkösii
+
+[![Watch the video](https://img.youtube.com/vi/uogXv_r0vtQ/default.jpg)](https://www.youtube.com/watch?v=uogXv_r0vtQ)
+
+# Ramiralli
+
+[![Watch the video](https://img.youtube.com/vi/_X8atzatrqU/default.jpg)](https://www.youtube.com/watch?v=_X8atzatrqU)
+
+# Markiisin alla aina on kesä
+
+[![Watch the video](https://img.youtube.com/vi/DUbhPyUXI1I/default.jpg)](https://www.youtube.com/watch?v=DUbhPyUXI1I)
