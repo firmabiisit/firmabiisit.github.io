@@ -98,3 +98,11 @@
 # E-P:n kone ja tarvike 
 
 [![Watch the video](https://img.youtube.com/vi/qfWLUTkYkP4/default.jpg)](https://www.youtube.com/watch?v=qfWLUTkYkP4)
+
+# Fujitsu Anthem
+
+[![Watch the video](https://img.youtube.com/vi/FRTf3UXCpiE/default.jpg)](https://www.youtube.com/watch?v=FRTf3UXCpiE)
+
+# Reaktor Kesisrap
+
+[...löytyy Facebookista täältä](https://www.facebook.com/WeAreReaktor/videos/942858402452542/)
