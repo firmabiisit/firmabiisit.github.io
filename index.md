@@ -86,3 +86,15 @@
 # Tieto 50 Anthem
 
 [![Watch the video](https://img.youtube.com/vi/0mYn6CPzZpg/default.jpg)](https://www.youtube.com/watch?v=0mYn6CPzZpg)
+
+# Jiravauva - ILPA ei toimi
+
+[![Watch the video](https://img.youtube.com/vi/X4Oo3XWc4LE/default.jpg)](https://www.youtube.com/watch?v=X4Oo3XWc4LE)
+
+# OodiKehitys - Korjausversio
+
+[![Watch the video](https://img.youtube.com/vi/gG6K41uAjfo/default.jpg)](https://www.youtube.com/watch?v=gG6K41uAjfo)
+
+# WebOodi - Etusivu
+
+[![Watch the video](https://img.youtube.com/vi/a93ToGLsHKw/default.jpg)](https://www.youtube.com/watch?v=a93ToGLsHKw)
