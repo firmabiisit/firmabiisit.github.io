@@ -94,3 +94,7 @@
 # Oodikehitys - Korjausversio
 
 [![Watch the video](https://img.youtube.com/vi/gG6K41uAjfo/default.jpg)](https://www.youtube.com/watch?v=gG6K41uAjfo)
+
+# E-P:n kone ja tarvike 
+
+[![Watch the video](https://img.youtube.com/vi/qfWLUTkYkP4/default.jpg)](https://www.youtube.com/watch?v=qfWLUTkYkP4)
