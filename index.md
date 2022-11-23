@@ -97,7 +97,13 @@
 
 # E-P:n kone ja tarvike 
 
+## Alkuperäinen
+
 [![Watch the video](https://img.youtube.com/vi/qfWLUTkYkP4/default.jpg)](https://www.youtube.com/watch?v=qfWLUTkYkP4)
+
+## E - P : N   K O N E   J A   T A R V I K E W A V E
+
+[![Watch the video](https://img.youtube.com/vi/HljZ4NR8jS4/default.jpg)](https://www.youtube.com/watch?v=HljZ4NR8jS4)
 
 # Fujitsu Anthem
 
