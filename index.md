@@ -108,6 +108,7 @@
 ## E - P : N   K O N E   J A   T A R V I K E W A V E
 
 [![Watch the video](https://img.youtube.com/vi/HljZ4NR8jS4/default.jpg)](https://www.youtube.com/watch?v=HljZ4NR8jS4)
+[![Watch the video](https://img.youtube.com/vi/WoUCp3pQqsM/default.jpg)](https://www.youtube.com/watch?v=WoUCp3pQqsM)
 
 # Fujitsu Anthem
 
