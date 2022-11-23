@@ -90,3 +90,10 @@
 # Eficode Recruitment Video - Don't Apply
 
 [![Watch the video](https://img.youtube.com/vi/YxCsHuvR_IA/default.jpg)](https://www.youtube.com/watch?v=YxCsHuvR_IA)
+# Oodikehitys - Korjausversio
+
+[![Watch the video](https://img.youtube.com/vi/gG6K41uAjfo/default.jpg)](https://www.youtube.com/watch?v=gG6K41uAjfo)
+
+# Käsihygienia rap
+
+[![Watch the video](https://img.youtube.com/vi/e-0c2O_DV-0/default.jpg)](https://www.youtube.com/watch?v=e-0c2O_DV-0)
