@@ -117,3 +117,7 @@
 # Reaktor Kesisrap
 
 [...löytyy Facebookista täältä](https://www.facebook.com/WeAreReaktor/videos/942858402452542/)
+
+# SIINON SITÄ JIITÄ - J. Rinta-Jouppi
+
+[![Watch the video](https://img.youtube.com/vi/DuNBEdpNhrE/default.jpg)](https://www.youtube.com/watch?v=DuNBEdpNhrE)
