@@ -126,3 +126,17 @@
 # SIINON SITÄ JIITÄ - J. Rinta-Jouppi
 
 [![Watch the video](https://img.youtube.com/vi/DuNBEdpNhrE/default.jpg)](https://www.youtube.com/watch?v=DuNBEdpNhrE)
+
+# Puuilo
+
+## Morjensta pöytään
+
+[![Watch the video](https://img.youtube.com/vi/3Rw7OB5yCXk/default.jpg)](https://www.youtube.com/watch?v=3Rw7OB5yCXk)
+
+## Morjensta pörssiin
+
+[![Watch the video](https://img.youtube.com/vi/EDpE0zu8J0o/default.jpg)](https://www.youtube.com/watch?v=EDpE0zu8J0o)
+
+## Morjensta pörssiin Elielinaukiolla
+
+[![Watch the video](https://img.youtube.com/vi/O_gYQrUBiMQ/default.jpg)](https://www.youtube.com/watch?v=O_gYQrUBiMQ)
