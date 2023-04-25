@@ -87,10 +87,6 @@
 
 [![Watch the video](https://img.youtube.com/vi/mMu32owW3rM/default.jpg)](https://www.youtube.com/watch?v=mMu32owW3rM)
 
-# Tieto 50 Anthem
-
-[![Watch the video](https://img.youtube.com/vi/0mYn6CPzZpg/default.jpg)](https://www.youtube.com/watch?v=0mYn6CPzZpg)
-
 # Eficode Recruitment Video - Don't Apply
 
 [![Watch the video](https://img.youtube.com/vi/YxCsHuvR_IA/default.jpg)](https://www.youtube.com/watch?v=YxCsHuvR_IA)
