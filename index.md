@@ -148,3 +148,8 @@
 # Martti Servo: KPNQwest
 
 [![Watch the video](https://img.youtube.com/vi/QvcspSpdZFk/default.jpg)](https://www.youtube.com/watch?v=QvcspSpdZFk)
+
+# Fortinet - Firewall
+
+[![Watch the video](https://pbs.twimg.com/ext_tw_video_thumb/1611445882573955089/pu/img/RIk0jkqwISzXuDEi.jpg:small)](https://twitter.com/i/status/1611450152509739008)
+
