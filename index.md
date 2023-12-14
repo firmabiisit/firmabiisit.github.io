@@ -153,3 +153,7 @@
 
 [![Watch the video](https://pbs.twimg.com/ext_tw_video_thumb/1611445882573955089/pu/img/RIk0jkqwISzXuDEi.jpg:small)](https://twitter.com/i/status/1611450152509739008)
 
+# Blackstone...vai oliko se BlackRock
+
+[Mm. Twitterissä](https://twitter.com/litcapital/status/1735360089052103039)
+
