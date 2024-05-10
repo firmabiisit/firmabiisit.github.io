@@ -157,3 +157,6 @@
 
 [Mm. Twitterissä](https://twitter.com/litcapital/status/1735360089052103039)
 
+# YIT - Luova rohkeus, Tripla flash mob
+
+[![Watch the video](https://img.youtube.com/vi/2NEkGHp3npM/default.jpg)](https://www.youtube.com/watch?v=2NEkGHp3npM)
