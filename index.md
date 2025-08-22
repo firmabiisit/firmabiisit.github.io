@@ -13,6 +13,9 @@
 
 [![Watch the video](https://img.youtube.com/vi/g8ZFLCG05o4/default.jpg)](https://www.youtube.com/watch?v=g8ZFLCG05o4)
 
+## Tieto Value for Life Bad Lipsync Shred
+[![Watch the video](https://img.youtube.com/vi/Wz7eE5-fdRM/default.jpg))](https://www.youtube.com/watch?v=Wz7eE5-fdRM)
+
 ## Tieto 50 Anthem
 
 [![Watch the video](https://img.youtube.com/vi/0mYn6CPzZpg/default.jpg)](https://www.youtube.com/watch?v=0mYn6CPzZpg)
